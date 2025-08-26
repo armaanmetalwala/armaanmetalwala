@@ -8,8 +8,6 @@
 
 📫 Contact Me: Whether it's a project idea, a question, or just a hello, feel free to reach out to me at armaan.metalwala@gmail.com. Let's connect and make something amazing together!
 
-😄 Pronouns: He/Him. Inclusivity and respect are core to my interactions.
-
 ⚡ Fun Fact: Beyond the digital world, I have a passion for bodybuilding. It's not just a hobby; it's a discipline that teaches me the values of dedication, hard work, and the pursuit of personal excellence.
 
 
