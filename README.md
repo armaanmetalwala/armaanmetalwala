@@ -1,12 +1,12 @@
-👋 Greetings! I'm Armaan Metalwala.
+Greetings! I'm Armaan Metalwala.
 
-👀 Interests: My passions lie in the realms of Computer Science and Software Engineering. I'm always eager to explore new knowledge and challenge myself with innovative ideas.
+Interests: My passions lie in the realms of Computer Science and Software Engineering. I'm always eager to explore new knowledge and challenge myself with innovative ideas.
 
-🌱 Current Learning Journey: I'm deeply immersed in studying Computer Science, with a keen focus on Data Science and Statistics. These fields fascinate me with their potential to solve complex problems and derive meaningful insights from data.
+Current Learning Journey: I'm deeply immersed in studying Computer Science, with a keen focus on Data Science and Statistics. These fields fascinate me with their potential to solve complex problems and derive meaningful insights from data.
 
-💞️ Collaboration: I'm on the lookout for opportunities to collaborate on projects. I believe in learning through doing and am excited to join forces with others who share a similar zeal for creating and exploring.
+Collaboration: I'm on the lookout for opportunities to collaborate on projects. I believe in learning through doing and am excited to join forces with others who share a similar zeal for creating and exploring.
 
-📫 Contact Me: Whether it's a project idea, a question, or just a hello, feel free to reach out to me at armaan.metalwala@gmail.com. Let's connect and make something amazing together!
+Contact Me: Whether it's a project idea, a question, or just a hello, feel free to reach out to me at armaan.metalwala@gmail.com. Let's connect and make something amazing together!
 
 ⚡ Fun Fact: Beyond the digital world, I have a passion for bodybuilding. It's not just a hobby; it's a discipline that teaches me the values of dedication, hard work, and the pursuit of personal excellence.
 
